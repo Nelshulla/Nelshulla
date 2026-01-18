@@ -6,7 +6,7 @@
 
 Hey there! Thanks for stopping by. Here's a quick rundown of my work hours and preferred communication times:
 
-- **Working Hours:** Monday to Friday, 12 PM to 7 PM
+- **Working Hours:** Monday to Friday, 8 AM to 4:30 PM
 - **Meetings:** I'm most productive in the late moring or early afternoons, so I prefer scheduling meetings after 10:00 AM or in the early afternoon, ideally after lunch.
 - **Availability:** You can always reach me via email 24/7. However, for phone calls, please note that I'm available between 8:00 AM and 4:00 PM.
 
